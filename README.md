@@ -5,6 +5,8 @@
 ## 丽萨主机官方网站
 丽萨主机官网：[lisahost.com](https://lisahost.com/aff.php?aff=1587)
 
+![image](https://github.com/viddanomarko/lisazhujiyouhuima/assets/157686551/ce8ff077-782b-422a-ab90-c5b6a3c55fda)
+
 ## 丽萨主机最新优惠码
 
 2024年4月丽萨主机最新优惠码：[TS-CBP205DQJE](https://lisahost.com/aff.php?aff=1587)
